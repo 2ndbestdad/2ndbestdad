@@ -1,2 +1,2 @@
-leone / joseph / steven . he/her . amab genderfluid . gay
+deacon / deke . he/her . amab genderfluid . gay
 
