@@ -12,5 +12,8 @@ i have a lot of interests lol + twd , housemd , bugsnax are my current main inte
 <p align="center">
 more info about me can be found on external links such as my strawpage and pronouns page
 </p>
+<p align="center">
+my discord is the same as my username here , rottengrimes . feel free to add
+</p>
 
 ![bird zombie](https://github.com/user-attachments/assets/b253c540-81be-4e11-8a96-d00ad3a3c30c)
