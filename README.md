@@ -7,7 +7,7 @@ rick . amab genderfluid . gay
 he/him + she/her pronouns only . apart from the few neos i use , which are on my pronouns page
 </p>
 <p align="center">
-i have a lot of interests lol + twd , housemd , bugsnax , and fortnite are my current main interests 
+i have a lot of interests lol + fallout 4 , twd , housemd , bugsnax , and fortnite are my current main interests 
 </p>
 <p align="center">
 more info about me can be found on external links such as my strawpage and pronouns page
